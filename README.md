@@ -25,6 +25,5 @@ COMING SOON
 COMING SOON
 
 ## Questions:
-Contact Me:
-Email: [chrisrw300@gmail.com](chrisrw300@gmail.com)
+Contact Me: [chrisrw300@gmail.com](chrisrw300@gmail.com)
 
